@@ -41,7 +41,16 @@
 
 > Jesus refers to himself as the son of man, why would Jesus's meaning be lost on his disciples? 
 > According to the Standard Lesson Commentary the son of man referenced in Daniel 7 was seen as more of an enigmatic phrase (mysterious; difficult to interpret https://languages.oup.com/google-dictionary-en/)
-> "13 “In my vision at night I looked, and there before me was one like a son of man,[a] coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14 He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed" (NIV Daniel 7:13-14).
+
+> What do you think the meaning of Daniel 7 is?
+
+### ** "13 “In my vision at night I looked, and there before me was one like a son of man,[a] coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14 He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed" (NIV Daniel 7:13-14).**
+
+> Do you see Jesus as a king? Does your allegiance, a word that Mathew Bates in *Salvation by Allegiance Alone* translates pistis (word used in Paul's letters and traditionally translated to faith), to Jesus apply to the spiritual spheres of your life, the physical spheres of your life, or something else?
+>  Both the spiritual and physical aspects of my life are ruled by Jesus.
+
+> Jesus asked them to take and eat the bread in rememberance of him, and then out of the 4 cups they would take for this meal, he seemingly took the 3rd cup and says that "this is my blood of the covenant, which is poured out for many for the forgiveness of sins" (27-28). What are some parallels we can draw between Jesus's blood and the blood of the lamb?
+> 
 
 > What was the is the significance of the lamb?
 
