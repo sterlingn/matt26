@@ -19,10 +19,29 @@
 
 ### 2. Where does this verse take place Matt 26:17-30?
 
-###*They start in Bethany and one of the disciples goes into the city (Jerusalem) where they eat at someone's home. Then after they eat the passover meal, they all go to Mount of Olives.* 
+###*They start in Bethany and two of the disciples (Peter and John according to Luke 22:8) go into the city (Jerusalem) where they eat at someone's home. Then after they eat the passover meal, they all go to Mount of Olives.* 
 
 ![image](http://ac21doj.org/contents/bibleStudy/theGospelAccordingToMark/images/Jerusalem.jpg)
 
 >Source: http://ac21doj.org/contents/bibleStudy/theGospelAccordingToMark/images/Jerusalem.jpg
 
+### 3. What is the Passover?
+
+### *Exodus 12, It was put into place by Aaron and Moses who were commanded by God. Rememberance is a large part of what the Passover meal is about.*
+
+### *Summarizing the story:*
+> What was the first thing to do for the passover meal?
+> *"(Slay the) lamb at the Jerusalem temple, where the blood would be sprinkled on the altar. Then they went to celebrate the meal with their families or other companions in groups of at least 10 people" (Standard Lesson Commentary 274).* 
+
+> Next, what do the disciples do?
+> They sit at a reclining table in Jerusalem and begin to partake in this feast.
+
+> Then, Jesus says something to the disciples?
+> v. 21 "Truly I tell you..." The disciples are distraught, and all begin to as Jesus if they are the betrayer. 
+
+> Jesus refers to himself as the son of man, why would Jesus's meaning be lost on his disciples? 
+> According to the Standard Lesson Commentary the son of man referenced in Daniel 7 was seen as more of an enigmatic phrase (mysterious; difficult to interpret https://languages.oup.com/google-dictionary-en/)
+> "13 “In my vision at night I looked, and there before me was one like a son of man,[a] coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14 He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed" (NIV Daniel 7:13-14).
+
+> What was the is the significance of the lamb?
 
