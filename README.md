@@ -46,11 +46,17 @@
 
 ### ** "13 “In my vision at night I looked, and there before me was one like a son of man,[a] coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14 He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed" (NIV Daniel 7:13-14).**
 
-> Do you see Jesus as a king? Does your allegiance, a word that Mathew Bates in *Salvation by Allegiance Alone* translates pistis (word used in Paul's letters and traditionally translated to faith), to Jesus apply to the spiritual spheres of your life, the physical spheres of your life, or something else?
+> Do you see Jesus as a king? Does your allegiance, a word that Mathew Bates in *Salvation by Allegiance Alone* on page 78 translates pistis (word used in Paul's letters and traditionally translated to faith), to Jesus apply to the spiritual spheres of your life, the physical spheres of your life, or something else?
 >  Both the spiritual and physical aspects of my life are ruled by Jesus.
 
 > Jesus asked them to take and eat the bread in rememberance of him, and then out of the 4 cups they would take for this meal, he seemingly took the 3rd cup and says that "this is my blood of the covenant, which is poured out for many for the forgiveness of sins" (27-28). What are some parallels we can draw between Jesus's blood and the blood of the lamb?
-> 
+> " The blood of the lamb had protected the Israelites from God's final plague (slaying of the first born son Ex. 12:13), and blood was later sprinkled on the people as they entered a new covenant with God" (24:5-8). The blood of the Lamb protected and was used for covenants, and here we see Jesus referring to the cup as a symbol of his blood which is a part of this new covenant (the literal blood split from him being beaten and killed).
 
-> What was the is the significance of the lamb?
+> Finally, they finish the meal with a hymn v. 30 which traditionally was psalms 113-118. 
+
+### from page 488: 
+
+> Write on sentence summary of the significance of the lam from each of these passages:
+
+### John 1:29-30; 1 cor. 5:7-8; revelation 5:6
 
