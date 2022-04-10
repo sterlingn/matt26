@@ -67,7 +67,6 @@
 
 ### revelation 5:6-10 NIV
 > 6 Then I saw a Lamb, looking as if it had been slain, standing at the center of the throne, encircled by the four living creatures and the elders. The Lamb had seven horns and seven eyes, which are the seven spirits[a] of God sent out into all the earth. 7 He went and took the scroll from the right hand of him who sat on the throne. 8 And when he had taken it, the four living creatures and the twenty-four elders fell down before the Lamb. Each one had a harp and they were holding golden bowls full of incense, which are the prayers of God’s people. 9 And they sang a new song, saying:
-
 “You are worthy to take the scroll
     and to open its seals,
 because you were slain,
