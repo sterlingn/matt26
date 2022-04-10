@@ -11,7 +11,7 @@
 
 ### 1. Where are we the week leading up to Jesus's death?
 
-![image](https://www.everlastingstrength.org/wp-content/uploads/2019/03/The-Passion-Week-Timeline-Tabloid-11x17.jpg?x57201)
+![image](passionweektimeline.jpg)
 
 >Source: https://www.everlastingstrength.org/resources/new-testament-timelines/
 
